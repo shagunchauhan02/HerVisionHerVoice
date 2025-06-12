@@ -30,10 +30,15 @@ To create a safe, nurturing space where young minds — especially from underser
 
 ## 📸 Screenshots
 ![Screenshot 2025-06-13 013742](https://github.com/user-attachments/assets/f42494dd-26f3-4a34-bea9-cfb394f4e96e)
+
 ![Screenshot 2025-06-13 013800](https://github.com/user-attachments/assets/e2a668b9-067a-430f-be4e-521ff3855f66)
+
 ![Screenshot 2025-06-13 013834](https://github.com/user-attachments/assets/16823347-37b0-4763-8057-508aa837e7e5)
+
 ![Screenshot 2025-06-13 013847](https://github.com/user-attachments/assets/30b9a481-d0f4-430f-a84b-ea52861935f8)
+
 ![Screenshot 2025-06-13 013859](https://github.com/user-attachments/assets/a5eaa604-df6d-4dd1-a44e-815c782823f5)
+
 ![Screenshot 2025-06-13 013910](https://github.com/user-attachments/assets/beb6cdac-3b40-4360-b3bb-94387b24ecde)
 
 > *“She writes from her heart...”*
